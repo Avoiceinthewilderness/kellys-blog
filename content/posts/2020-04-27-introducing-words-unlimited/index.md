@@ -4,11 +4,11 @@ author: A Voice in the Wilderness
 date: 2020-04-27T00:00:00.000Z
 hero: images/photo-1476610182048-b716b8518aae.jpg
 ---
-Yesterday I was brought to tears by the song [Alicia Keyes](https://www.youtube.com/watch?v=ighFo0i0nrA) wrote and sang for the hero’s today in the wake of COVID19. Music has always found away to move me and I know I am not alone. But there is another way I have stirred the deep waters within me and it is in silence and words. When I read something profound and I am present in the words it’s almost like I can sense a life in them. That they were meant for me. That if I was feeling anxious or worried I would escape into words and the way the author placed the words, one after the other seemed miraculous because they calmed me.
+Yesterday I was brought to tears by the song [Alicia Keyes](https://www.youtube.com/watch?v=ighFo0i0nrA) wrote and sang for the hero’s today in the wake of COVID19. Music has always found a way to move me and I know I am not alone. But there is another way I have stirred the deep waters within me and it is in silence and words. When I read something profound and I am present in the words it’s almost like I can sense a life in them. That they were meant for me. That if I was feeling anxious or worried I would escape into words and the way the author placed the words, one after the other seemed miraculous because they calmed me.
 
 Who am I? I have grappled with this question myself for many years. This I know, after I was grown I became a soldier, joining the military after high school. I am a wife and a mother. I am a licensed dental hygienist, I am someone’s child, I am sister, friend, and so many other things. But all of them are me, different parts but the same me. I am one person. 
 
-Working in dentistry for the past thirty five years has allowed me the privilege to meet many people. I have never taken this lightly. It’s a rare gift to be able to peer into ones’ mouth. Very recently I have come to see my job as a sacred space. In this time where I have been deemed nonessential it was a sucker punch. Dentistry has long been trying to be recognized as part of the collaborative medical team. Our job entails the head and neck, of which without it, the body would not survive. It is a vital part.
+Working in dentistry for the past thirty five years has allowed me the privilege to meet many people. I have never taken this lightly. It’s a rare gift to be able to peer into ones’ mouth. Very recently I have come to see my job as a sacred space. In this time where I have been deemed nonessential it was a sucker punch. Dentistry has long been working on being recognized as part of the collaborative medical team. Our job entails the head and neck, of which without it, the body would not survive. It is a vital part.
 
 This is a blog dedicated to making the connections of the mind, the body and the spirit. I was disconnected in these for many years. They were all part of me but I saw parts as being more important than the other. When I became a mother I reconnected with my spirit and it lead me for many years. In fact I so valued the spirit over my body that I let a lot of me go. Some people may have seen it but what I tell you can’t be seen because it was on the inside of me. But each day I put on my best face and did the necessary things to contribute to society.
 
@@ -22,6 +22,6 @@ My background in physical science and this new found theology started connecting
 
 [DeWitt C. Wilkerson, DMD, The Shift](https://www.wittwilkersondmd.com/)
 
-Just as the source of flow from the waterfall feeds into every artery connected to the flow of water so our our bodies connected....
+Just as the source of flow from the waterfall feeds into every artery connected to the flow of water so are our bodies connected....
 
 Photo credit[ Robert Lukeman](https://unsplash.com/@robertlukeman)
