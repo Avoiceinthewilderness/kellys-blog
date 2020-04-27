@@ -18,6 +18,10 @@ And so it was with my faith. I felt this draw to something called [The Theology 
 
 My background in physical science and this new found theology started connecting a lot of dots for me. I read every book I could on it. I knew there was a connection between my job as a dental hygienist and this. For  several years now I have been on the hunt. I have made connections with countless Doctors, Dentists, therapists of many sorts and authors, that confirmed what I had been seeking myself. I hope through my blog I can point to all those that had a part in putting me back together. But most recently, yesterday in fact, I extracted this quote that puts it all together,
 
- “The interaction between the mind, body, emotions and personality has a tremendous effect on the health of every cell in our body” 
+ “The interaction between the mind, body, emotions and personality has a tremendous effect on the health of every cell in our body”
 
 [DeWitt C. Wilkerson, DMD, The Shift](https://www.wittwilkersondmd.com/)
+
+Just as the source of flow from the waterfall feeds into every artery connected to the flow of water so our our bodies connected....
+
+Photo credit[ Robert Lukeman](https://unsplash.com/@robertlukeman)
