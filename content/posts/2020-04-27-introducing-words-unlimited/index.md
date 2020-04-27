@@ -2,7 +2,7 @@
 title: Introducing Words Unlimited
 author: A Voice in the Wilderness
 date: 2020-04-27T00:00:00.000Z
-hero: images/photo-1523224949444-170258978eef.jpg
+hero: images/photo-1476610182048-b716b8518aae.jpg
 ---
 Yesterday I was brought to tears by the song [Alicia Keyes](https://www.youtube.com/watch?v=ighFo0i0nrA) wrote and sang for the hero’s today in the wake of COVID19. Music has always found away to move me and I know I am not alone. But there is another way I have stirred the deep waters within me and it is in silence and words. When I read something profound and I am present in the words it’s almost like I can sense a life in them. That they were meant for me. That if I was feeling anxious or worried I would escape into words and the way the author placed the words, one after the other seemed miraculous because they calmed me.
 
